@@ -22,9 +22,9 @@
 
 🔗 **官方网站**：请访问 [docs.applexp.com](https://docs.applexp.com/free-accounts/Shadowrocket) 获取最新的 **小火箭账号** 和 **shadowrocket 美区账号共享** 资源。
 
-🔗 **购买独享账号** （小火箭独享账号，苹果各国ID，等各类账号）[【点击进入】](https://shop.muooy.com/)
+🔗 **购买独享账号** （小火箭独享账号，苹果各国ID，等各类账号）[【点击进入】](https://juzixp.com/)
 
-🔗 **购买完全可用的共享账号**地址：[【 点击进入】](https://shop.muooy.com/buy/21)
+🔗 **购买完全可用的共享账号**地址：[【 点击进入】](https://juzixp.com/buy/21)
 
 - 账号每日更新，确保持续可用。
 - 提供简便的账号获取方式，适合新手和资深用户。
